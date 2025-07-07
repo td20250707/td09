@@ -15,4 +15,4 @@
 避免非法网站，以保障个人信息安全。
 通过正规平台，你能快速找到免费的日本AV资源，享受高质量的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td09 ）</span>
